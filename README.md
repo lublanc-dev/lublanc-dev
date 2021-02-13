@@ -6,7 +6,7 @@
 🏆 Extra goals in life:
 
 - Having a date with Emilia Clarke
-- Have my face on PogChamp
+- Have my face on the PogChamp emote
 
 <!---
 lublanc-dev/lublanc-dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
